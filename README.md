@@ -13,5 +13,3 @@ https://www.linkedin.com/pulse/face-recognition-machine-learning-sarabjeet-singh
 https://www.linkedin.com/pulse/face-recognition-machine-learning-part-2-sarabjeet-singh
 
 https://www.linkedin.com/in/sarab96
-sarab96@gmail.com
-
